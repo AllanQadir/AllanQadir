@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Allan and 14 years old!
+- 👀 I’m interested in cooking, baking, drawing, geography and history!
+- 🌱 I’m currently learning tatar, arabic and kurmacî.
+- 📫 How to reach me: allanabdullah397@gmail.com
